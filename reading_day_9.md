@@ -1,0 +1,3 @@
+Reading notes day 9.
+
+The reading today was about.....
